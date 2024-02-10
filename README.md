@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @sinwok
-- 👀 I’m interested in han sinwoo
+- 👋 Hi, I’m @sachi
+- 👀 I’m interested in sasachi
 - 🌱 I’m currently learning PBB
-- 💞️ I’m looking to collaborate on Instagram 
-- 📫 How to reach me @sasacchin
-- 🙉 I like your brother 
+- 📫 How to reach me @sasacchin_
+- 🙉 daekyom gf (no hoax)
 
 <!---
 sinwok/sinwok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
